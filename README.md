@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @pixelitaa
+- 👀 I’m interested in programming, Music and hacking and refurbishing obsolete consoles :)
+- 🌱 I’m currently learning to make music using microcontrollers
+- 💞️ I’m looking to collaborate on all types of tech proyects :)
+- 📫 How to reach me paula.landeros@mail.udp.cl 
+- 😄 Pronouns: my pronouns are she/her
+- ⚡ Fun fact: my cat is terrified of my 3d printer
